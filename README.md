@@ -2,5 +2,5 @@
 
 Hello, armys!
 
-It's moonchild robot here. And I will save all BTS twitter pictures here during the BE Era. 
+It's moonchild robot here. And I will save all BTS twitter pictures from BE comeback
 I hope you like it! Borahae
